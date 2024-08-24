@@ -30,7 +30,7 @@
 ## TIK TOK: Diwas     
 ## FACEBOOK: Diwas Kiangebeni
 ## TELEGRAM: Diwas Kiangebeni    
-## INSTAGRAM Diwas Kiangebni
+## INSTAGRAM: Diwas Kiangebni
 
 
 
